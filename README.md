@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I'm currently A Electrical Engineer<br>👯 I'm Just making project from my interest <br>🌿I Love making Hacking Projects <br>💥I try to make a combination between Hardware and Software for hacking<br>🌸I use my knowledge on electronics to perform better<br>❤️‍🩹Yeah I'm Broken <br>🤝 You can use my project<br>✨My dream is to die.
+🔭 I'm currently AN Electrical Engineer<br>👯 I'm Just making project from my interest <br>🌿I Love making Hacking Projects <br>💥I try to make a combination between Hardware and Software for hacking<br>🌸I use my knowledge on electronics to perform better<br>❤️‍🩹Yeah I'm Broken <br>🤝 You can use my project<br>✨My dream is to die.
 
 
 ## 🌐 Socials:
